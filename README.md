@@ -2,7 +2,7 @@
 - 👀 I’m interested in fazer códigos 
 - 🌱 I’m currently learning liguagem C
 - 💞️ I’m looking to collaborate on projetos
-- 📫 How to reach me por este site rsrsrs
+- 📫 entrar em contato comigo por este site rsrsrs
 - 😄 Pronouns: Iniciante
 - ⚡ Fun fact: Piaui_ Brasil
 
