@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LUks125777
+- 👋 Hi, I’m setubalbr
 - 👀 I’m interested in fazer códigos 
 - 🌱 I’m currently learning liguagem C
 - 💞️ I’m looking to collaborate on projetos
